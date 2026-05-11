@@ -1,5 +1,5 @@
 ## CW // ISLAMOPHOBIA | CALLING OUT ISLAMOPHOBIC BEHAVIOUR.
-![my image](Screenshot2026-05-11230152.png)
+![my image](https://github.com/gojoluvsnuha/gojoluvsnuha/blob/main/Screenshot%202026-05-11%20230152.png?raw=true)
 <!--
 **gojoluvsnuha/gojoluvsnuha** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
