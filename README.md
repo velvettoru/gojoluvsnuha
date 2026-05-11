@@ -1,4 +1,5 @@
 ## ⚠️WARNING ABOUT THIS USER, @KY0GEN⚠️ CW // ISLAMOPHOBIA | CALLING OUT ISLAMOPHOBIC BEHAVIOUR.
+![my image](https://github.com/gojoluvsnuha/gojoluvsnuha/blob/main/Screenshot%202026-05-11%20230152.png?raw=true) 
 ![my image](https://github.com/gojoluvsnuha/gojoluvsnuha/blob/main/Screenshot%202026-05-11%20230152.png?raw=true)
 -->
 - story : was having a normal conversation with my friend when this person randomly came up, said 'ew muzzy,' then walked away. completely unprovoked. i'm muslim, so yes, i know exactly what they meant. using someone's religion as an insult isn't funny or edgy. it's just disrespectful and islamophobic. reminder that being openly islamophobic does not make you funny, cool, or edgy. it just makes you weird and disrespectful. leaving this here so people know the kind of person they're interacting with.
