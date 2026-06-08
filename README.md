@@ -8,4 +8,4 @@
  
 - ⚠️ : posting this as a warning because if they're comfortable saying this openly to strangers, imagine how they act in private. please think twice before interacting with them.
  
-- to the user who said 'ew muzzy' : yes, i'm keeping this up until you apologize. you chose to say it loudly and publicly for no reason, so you can face the consequences of your own words. and when you got confronted, instead of taking responsibility, you hid from us. coward bitch. if you're confident enough to disrespect muslims openly, then you should be confident enough to face the consequences too.
+- to the user who said 'ew muzzy' : yes, i'm keeping this up until you apologize. you chose to say it loudly and publicly for no reason, so you can face the consequences of your own words. and when you got confronted, instead of taking responsibility, you hid from us. coward bitch, GROWN ass woman btw. if you're confident enough to disrespect muslims openly, then you should be confident enough to face the consequences too.
