@@ -1,5 +1,5 @@
 ## ⚠️WARNING ABOUT THIS USER, [@KY0GEN](https://github.com/KY0GEN)⚠️ CW // ISLAMOPHOBIA | CALLING OUT ISLAMOPHOBIC/PROBLEMATIC BEHAVIOUR.
-‼️EDIT: grown woman starting shit with a 17yo then hiding behind a block button 😭 embarrassing ass coward 😹😹
+‼️EDIT: grown woman starting shit with a 17yo then hiding behind a block button 😭 embarrassing ass coward 😹😹 kita settle kat akhirat nanti bro.
 ![my image](https://github.com/velvettoru/gojoluvsnuha/blob/main/Screenshot%202026-07-12%20235535.png?raw=true) 
 ![my image](https://github.com/velvettoru/gojoluvsnuha/blob/main/Screenshot%202026-05-11%20225119.png?raw=true) 
 ![my image](https://github.com/velvettoru/gojoluvsnuha/blob/main/Screenshot%202026-05-12%20100840.png?raw=true) 
