@@ -13,8 +13,8 @@
 <br>
 
   <p align="center">
- 𝗮𝗻𝗼𝘁𝗵𝗲𝗿 𝗽𝗿𝗼𝗯𝗹𝗲𝗺𝗮𝘁𝗶𝗰/𝗶𝘀𝗹𝗮𝗺𝗼𝗽𝗵𝗼𝗯𝗶𝗰 𝘂𝘀𝗲𝗿: [@invinciblecest](https://github.com/invinciblecest)
-</p> 
+ 𝗮𝗻𝗼𝘁𝗵𝗲𝗿 𝗽𝗿𝗼𝗯𝗹𝗲𝗺𝗮𝘁𝗶𝗰/𝗶𝘀𝗹𝗮𝗺𝗼𝗽𝗵𝗼𝗯𝗶𝗰 𝘂𝘀𝗲𝗿: [@invinciblecest](https://github.com/invinciblecest) 
+  </p> 
 
 <p align="center">
   <img src="https://github.com/velvettoru/gojoluvsnuha/blob/main/Screenshot%202026-10-23%20200225.png?raw=true">
