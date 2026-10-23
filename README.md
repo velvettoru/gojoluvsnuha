@@ -21,7 +21,7 @@
 </p>  
 
 <p align="center">
- screenshot from my friend @kimitsukiii thanks to her.
+ screenshot from my friend @kimitsukiii thanks to them.
 </p> 
 
 <p align="center">
