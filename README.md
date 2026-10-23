@@ -9,4 +9,4 @@
  
 - to the user who said 'ew muzzy' : yes, i'm keeping this up until you apologize. you chose to say it loudly and publicly for no reason, so you can face the consequences of your own words. and when you got confronted, instead of taking responsibility, you hid from us. coward bitch, GROWN ass woman btw. if you're confident enough to disrespect muslims openly, then you should be confident enough to face the consequences too.
 
-another  islamophobic user [@invinciblecest ](https://github.com/invinciblecest)
+another  islamophobic user: [@invinciblecest ](https://github.com/invinciblecest)
