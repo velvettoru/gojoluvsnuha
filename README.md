@@ -13,7 +13,7 @@
 <br>
 
   <p align="center">
- ANOTHER PROBLEMATIC/ISLAMOPHOBIC USER [@invinciblecest](https://github.com/invinciblecest)
+ 𝗮𝗻𝗼𝘁𝗵𝗲𝗿 𝗽𝗿𝗼𝗯𝗹𝗲𝗺𝗮𝘁𝗶𝗰/𝗶𝘀𝗹𝗮𝗺𝗼𝗽𝗵𝗼𝗯𝗶𝗰 𝘂𝘀𝗲𝗿: [@invinciblecest](https://github.com/invinciblecest)
 </p> 
 
 <p align="center">
@@ -25,5 +25,5 @@
 </p> 
 
 <p align="center">
-  <img src="https://github.com/velvettoru/gojoluvsnuha/blob/main/Screenshot%202026-10-23%20200956.png">
-</p>  
+ imagine being so embarrassingly miserable that the only way you can feel superior is by disrespecting a holy book. islamophobia is genuinely disgusting, but the sheer lack of class and intellectual maturity is almost more embarrassing. grow up.
+</p> 
