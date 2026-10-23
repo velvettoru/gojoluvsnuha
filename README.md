@@ -15,4 +15,9 @@
 
 <p align="center">
   <img src="https://github.com/velvettoru/gojoluvsnuha/blob/main/Screenshot%202026-10-23%20200225.png?raw=true">
-</p> 
+</p>  
+
+<p align="center">
+  <img src="https://github.com/velvettoru/gojoluvsnuha/blob/main/Screenshot%202026-10-23%20200225.png?raw=true">
+</p>  
+
