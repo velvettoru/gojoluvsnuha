@@ -25,5 +25,5 @@
 </p> 
 
 <p align="center">
- imagine being so embarrassingly miserable that the only way you can feel superior is by disrespecting a holy book. islamophobia is genuinely disgusting, but the sheer lack of class and intellectual maturity is almost more embarrassing. grow up.
+ imagine being so embarrassingly miserable that the only way you can feel superior is by disrespecting a holy book. disgusting, but the sheer lack of class and intellectual maturity is almost more embarrassing. grow up.
 </p> 
